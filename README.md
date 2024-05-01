@@ -1,1 +1,1 @@
-# EduConnect---Hack2Sustain
+# EduConnect-Hack2Sustain
